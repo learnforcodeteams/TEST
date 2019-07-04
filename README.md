@@ -1,9 +1,8 @@
 # TEST
 TEST SKUY
 
-Numpang kuy
-Copy right @ Tony Wijaya
-Saya mengaku Gay 
+NEWS
+Copy right @ AbdulArifPratama
+TonyPenyebarHoax
   -AbdulArifP
-Aku Yang Paling Ganteng
--Abdul Arif
+
